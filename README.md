@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @KoyoEXE
+- 👀 I’m interested in learning python
+- Can you help? Koyoexe_ is my discord. anything is great <3
